@@ -34,7 +34,7 @@ Sou formado em Odontologia, atualmente estudando **Engenharia de Software** e mi
 
 - [LinkedIn](https://www.linkedin.com/in/philipe-andrade-b2a341337/)  
 - [GitHub](https://github.com/Philipe12ra/Philipe12ra)  
-- E-mail: philipe_ra@hotmail.com  
+- E-mail: philiperra@gmail.com 
 
 ---
 
